@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Passionate AI enthusiast, innovating for the future.
 
 
